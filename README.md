@@ -4,6 +4,6 @@
   
   Links to website & social media: 
  
-  https://instagram.com/trulyharshpatel?igshid=NTA5ZTk1NTc=
+  https://instagram.com/trulyharshpatel?igshid=Nk1NTc=
 
   Contact me here- hpatel5199@conestogac.on.ca
